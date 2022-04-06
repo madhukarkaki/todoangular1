@@ -1,2 +1,2 @@
 # todoangular1
-todo angularpro
+todo angularpro telugu skill hub 
